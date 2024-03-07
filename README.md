@@ -1,6 +1,6 @@
 # Pendant
 
-![pendant](https://i.imgflip.com/8iav5g.jpg)
+![pendant](https://i.imgflip.com/8ib4xm.jpg)
 
 Pendant is better than Amulet.
 
